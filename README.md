@@ -1,6 +1,6 @@
-Hi, I’m Ashton
-We are a new proprietary trading firm
-How to reach me ...
+Hi, I’m Ashton Rowland
+-We are a new proprietary trading firm
+-How to reach me ...
 ashton.rowlandenterprises@gmail.com
 251-270-9715
 
